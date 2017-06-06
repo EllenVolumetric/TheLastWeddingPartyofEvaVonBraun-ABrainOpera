@@ -3,7 +3,7 @@ Hack The Brain Dublin 2017 Project
 https://dublin.sciencegallery.com/page/lastweddingpartyevavonbraunbrainopera
 
 ## Who
-
+Ellen Pearlman
 
 ## Why
 
